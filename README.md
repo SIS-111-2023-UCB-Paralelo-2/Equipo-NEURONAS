@@ -1,5 +1,5 @@
 # 
-![]()
+![](https://github.com/ValeAleH/Practicos-y-examenes/blob/main/WhatsApp%20Video%202023-02-22%20at%208.34.09%20PM.mp4)
 
 - Nosotros somos el equipo neuronas conformado por futuros ingenieros mecatronicos e ingenieros en sistemas 👩‍💻👨‍💻somos un equipo donde nos une el mismo objetivo de crear tecnologia para formar un mejor futuro para el planeta cuidando y manteniendo nuestro entorno facilitando el trabajo de la humanidad🌎
 
