@@ -1,5 +1,5 @@
 # 
-![](https://user-images.githubusercontent.com/124791143/220798005-0e3f7999-d6d4-417a-8fde-1b79ebc94228.mp4)
+![]()
 
 - Nosotros somos el equipo neuronas conformado por futuros ingenieros mecatronicos e ingenieros en sistemas 👩‍💻👨‍💻somos un equipo donde nos une el mismo objetivo de crear tecnologia para formar un mejor futuro para el planeta cuidando y manteniendo nuestro entorno facilitando el trabajo de la humanidad🌎
 
